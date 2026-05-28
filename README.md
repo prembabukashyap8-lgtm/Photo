@@ -1,1 +1,1 @@
-# Photo
+# Photos
